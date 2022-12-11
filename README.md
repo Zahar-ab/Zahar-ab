@@ -1,1 +1,1 @@
-![mah](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.belanta.vet%2Fvet-blog%2Fkogo-luchshe-zavesti-kota-ili-koshku%2F&psig=AOvVaw375T0wSV0kqVUdTc2Goz7F&ust=1670841592840000&source=images&cd=vfe&ved=2ahUKEwjYvJqOsPH7AhWY6CoKHXXbA24QjRx6BAgAEAo)
+![mah](https://upload.wikimedia.org/wikipedia/commons/0/0e/Felis_silvestris_silvestris.jpg)
